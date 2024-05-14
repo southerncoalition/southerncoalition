@@ -1,0 +1,1 @@
+Southern Coalition for Social Justice partners with communities of color and economically disadvantaged communities in the South to defend and advance their political, social, and economic rights through the combination of legal advocacy, research, organizing, and communications.
