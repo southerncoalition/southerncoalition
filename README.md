@@ -9,4 +9,4 @@ The hopes and wishes of this GitHub include:
 2. Transparency
 3. Shareability/Replicability
 
-The ability to consolidate and disseminate tools here will hopefully allow research at SCSJ to contribute to the building of movements of which we are a part.
+The ability to consolidate and disseminate tools here will hopefully allow research at SCSJ to contribute to the building the of movements of which we are a part.
